@@ -1,4 +1,4 @@
-# Examples: Unified Guide
+# Examples: Unified Guide https://t.me/QcoldVpnPizdaBot
 
 ## Overview
 
